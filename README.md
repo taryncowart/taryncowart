@@ -6,6 +6,10 @@ I'm the new Creative Director on the Brand Studio team. I joined GitHub after se
 
 - 🩸 CharliXCX
 - 🏋🏼‍♀️ Weightlifting
+- 🏋🏼‍♀️ Weightlifting
 - ✎ Typografie
 - 📖 Nonfiction
+- 📖 Nonfiction 1
+- 📖 Nonfiction 2
+- 📖 Nonfiction 3
 - 🖤 Evocative brand marketing
