@@ -9,3 +9,7 @@ I'm the new Creative Director on the Brand Studio team. I joined GitHub after se
 - ✎ Typografie
 - 📖 Nonfiction
 - 🖤 Evocative brand marketing
+
+## Add me…
+- [Are.na](https://www.are.na/taryn-cowart)
+- [Instagram](https://www.instagram.com/taryncowart/)
